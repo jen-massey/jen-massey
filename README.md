@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @jen-massey
-- 👀 I’m interested in ethics projects
-- 💞️ I’m looking to collaborate on a wide variety of subjects and make some diverse connections
-- 📫 How to reach me jen4massey@gmail.com
+- 👀 I’m interested in social projects and creative problem solving
+- 💞️ I’m looking make some diverse connections 
+- 📫 How to reach me jennifermassey11-11@proton.me
 - 😄 Pronouns: she/her
 
 
